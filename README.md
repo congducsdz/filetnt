@@ -1,7 +1,7 @@
 ## Info
-👤 Name: TNTXTRICK
+👤 Name: 𝐂𝐨𝐧𝐠𝐃𝐮𝐜
 
-🌐 Fb: https://www.facebook.com/tntxtrick
+🌐 Fb: https://www.facebook.com/cong.duc.110108?mibextid=ZbWKwL
 
 🔐 Github: https://github.com/TNTxTrick
 
